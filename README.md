@@ -1,2 +1,2 @@
 # DerStadel
-Der Stadel vom Chytil
+Der Stadel vom Chytil - just a homebase for lurking around
